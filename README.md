@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @StudentTESTING-AI
 - 👀 I’m interested in ... Learn something new
 - 🌱 I’m currently learning ... in cybersecurity
-- 💞️ I’m looking to collaborate on ... person who willing to help me
 - 📫 How to reach me ... Dm me on https://www.instagram.com/pinakbet_lover/ https://discord.com/channels/1094611412539674667/1094611413374345298
 
 <!---
