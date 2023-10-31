@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @StudentTESTING-AI
+- 👋 Hi, I’m STUDENT in IT
 - 👀 I’m interested in ... Learn something new
 - 🌱 I’m currently learning ... in cybersecurity
 - 📫 How to reach me ... Dm me on https://www.instagram.com/pinakbet_lover/ https://discord.com/channels/1094611412539674667/1094611413374345298
